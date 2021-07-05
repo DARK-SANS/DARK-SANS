@@ -1,4 +1,4 @@
-# 𝕂𝕚𝕟𝕘𝕄𝕒𝕙𝕒𝕤𝕖𝕟
+# �DARKSAN
 
 <div align="center">
 
